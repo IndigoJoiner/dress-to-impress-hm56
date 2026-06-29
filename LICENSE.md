@@ -1,4 +1,4 @@
-#  
+#  Experience dress to impress like never before with vip Scripts for dress to impress, the #1 Script. Includes invisibility and speed for unbeatable
 
 
 
